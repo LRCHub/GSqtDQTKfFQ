@@ -1,0 +1,59 @@
+# HIKAKIN & SEIKIN – YouTubeテーマソング(カラオケ ver.)
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+YouTube YouTube
+Broadcast Yourself Yeah!
+YouTube YouTube
+主役は君なのさ！
+Hey!
+Hey!
+今日は日曜日外は雨降りだ
+何をしようかそうだYouTube観よう
+24時間朝昼夜でも
+好きな時間に好きな動画観よう
+いつも夢見ていたスクリーンデビュ
+ー
+今なら叶うさ夢諦めるな
+Let's Try Again!
+Hey!
+YouTube YouTube
+Broadcast Yourself Yeah!
+YouTube YouTube
+主役は君なのさ！
+YouTube YouTube
+Broadcast Yourself Yeah!
+YouTube YouTube
+夢をつかめ YouTube!
+Hey!
+Hey!
+カメラ片手に夜空見上げよう
+流星群 だ すぐに動画撮ろう
+君が見つけた宇宙の美しさ
+見せてあげよう 世界中の人へ
+誰もが悩み不安抱えているだろう
+勇気を与えよう僕らの動画で
+Let's Try Again!
+Hey!
+YouTube YouTube
+Broadcast Yourself Yeah!
+YouTube YouTube
+主役は君なのさ!
+YouTube YouTube
+Broadcast Yourself Yeah!
+YouTube YouTube
+夢をつかめ...
+YouTube
+(ハロYouTube)
+YouTube YouTube
+Broadcast Yourself Yeah!
+YouTube YouTube
+主役は君なのさ!
+Hey!
+YouTube YouTube
+Broadcast Yourself Yeah!
+YouTube YouTube
+夢をつかめYouTube!
+Hey!
+```
